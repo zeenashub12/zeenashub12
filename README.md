@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on Web Development and Hackathon Projects.
 - 📫 How to reach me ...https://t.me/maalisun_23, https://x.com/maalisun
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ...You have a knack for turning everyday moments into opportunities to learn something new and interesting!
-  This curiosity not only makes life more exciting but also enriches your knowledge in surprising ways.
+- ⚡ Fun fact: ...I am a Man United Fan and I love to play chess
 
 <!---
 zeenashub12/zeenashub12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
